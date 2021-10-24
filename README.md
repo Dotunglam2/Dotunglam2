@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dotunglam2
+- 👋 Hi, I’m Do Tung Lam
 - 👀 I’m interested in SIMP
 - 🌱 I’m currently learning 15 old
 - 💞️ I’m looking to collaborate on Alone
